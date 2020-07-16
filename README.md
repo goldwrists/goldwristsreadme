@@ -1,0 +1,2 @@
+# goldwristsreadme
+truegoat ishminn tewcool 
